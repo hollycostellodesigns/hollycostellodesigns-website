@@ -1,2 +1,0 @@
-# hollycostellodesigns-website
-My portfolio
